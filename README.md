@@ -1,2 +1,3 @@
 # hello-world
 Hello word, I´m here learning how to use GitHub. Let´s go ...
+I´m brazilian and very happy. I like watch movies and series, talk about that, in really talk about whatever. I´m very talkative. That´s it. 
